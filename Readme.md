@@ -42,7 +42,7 @@ Cat in 12 slices
 3. Mix the icing sugar with just enough water to give a runny, but not watery, icing. Put a small amount of icing in a separate bowl. Add a few drops of the food colouring to the icing until pale yellow. Spoon into a disposable icing bag.
 4. Remove the cake from the tin and peel off the baking parchment. Sit the cake on a wire rack over a baking tray. Spread the white icing over the top. Pipe thin lines of the coloured icing across the width of the cake. Use a cocktail stick to drag through the lines in opposite directions to create a feathered effect. Leave to set before cutting into slices.
 
-> recipe from _Good Food Magazine_, ![July 2018](https://www.bbcgoodfood.com/search/recipes/date/1467327600)
+> recipe from _Good Food Magazine_, [July 2018](https://www.bbcgoodfood.com/search/recipes/date/1467327600)
 
 
 
